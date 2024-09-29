@@ -1,1 +1,1 @@
-# Puppy-Pals-Workshop
+# Puppy-Pals
